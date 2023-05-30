@@ -9,3 +9,4 @@
 ### Week 2
 
 - [Day 1](https://generalassembly.zoom.us/rec/share/sqz2nbhNeYOLRIGA6-fnFjYbedPDJtAdUrlJ8ybHeArUrybZwEoKQW6JN6QKNV-3.nz_rWomz5h0rtYmp) Passcode: ?KBtBF$3
+- [Day 2](https://generalassembly.zoom.us/rec/share/H3pOQKdx60quZng-JqQHlhD9nhZlYr-aIw4t3a6sxXtyLPlkqGsj5lfJZkTSVFX8.DHRjh0X1oZJpjv4V) Passcode: zj@?fQh7
