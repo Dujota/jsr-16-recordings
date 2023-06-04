@@ -14,3 +14,4 @@
 ### Week 3
 
 - [Day 1](https://generalassembly.zoom.us/rec/share/lprDMzv7gWS9Oz9GhjQIXYtAm2cPB3zUzsPC01OmbYEf_jFQx5wX6NA9OGd7NCBR.kTozu9p8qKZxkgry) Passcode: vNfy6!Dj
+- [Day 2](https://generalassembly.zoom.us/rec/share/QgQc6XOS4fbJdyKWQttUu90TiT_rqs08VbwhVJoDCbC-lBDIlnT6aaDLMRRytXAw.py6DojviBrf7pSXH) Passcode: tRhz2d=h
