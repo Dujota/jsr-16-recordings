@@ -25,3 +25,30 @@
 Week 5
 
 - [Day 1](https://generalassembly.zoom.us/rec/share/qhSYnIVWo0dgCuRzisyfgUWCexrvbVGQg0jpqUOl7od03Idx7VjyeuGXHgZa0FQ-.K-o3Gj7BLsolHh67) Passcode: Q=%b&a5&
+
+- [Day 2](https://generalassembly.zoom.us/rec/share/7dit7gq3HEnN1V0KXHPML4JGCVnRB_wQXD772wBiLOIGj8Ml0Ghaf95jS8ma0VXd._lbOPQCqNz9HGQJ1) Passcode: 1uCR+?Fk
+
+Week 6
+
+- [Day 1](https://generalassembly.zoom.us/rec/share/IyVnTFE9XvjoQGXaC1xZ5G_LIar6armaav-B9UJkqjhYQlkex9lmgskLzSX03eUV.F0dW8oIf62mKNBnL) Passcode: H6H1%d7u
+- [Day 2](https://generalassembly.zoom.us/rec/share/vFi9S3gBDNqx-I7WTDzy_DAloN_Ecmac8LkkB1NXvFLZV8aQPB20V7vLYPGcECSF.o7rXqUSIYoCrlsM1) Passcode: &8xdxhU+
+
+Week 7
+
+- [Day 1](https://generalassembly.zoom.us/rec/share/sJzNHcALF7GJZ2t0e7CchLn0379psGiPv2QqU_K0gJ7ry2OCPQG2ilxGC3dkVmg.QiIYyyDwyClmqWUj) Passcode: N.^3z*Ew
+- [Day 2]() Passcode:
+
+Week 8
+
+- [Day 1]() Passcode:
+- [Day 2]() Passcode:
+
+Week 9
+
+- [Day 1]() Passcode:
+- [Day 2]() Passcode:
+
+Week 10
+
+- [Day 1]() Passcode:
+- [Day 2]() Passcode:
