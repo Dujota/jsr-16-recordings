@@ -41,7 +41,7 @@
 ### Week 8
 
 - July 4th, Holiday!
-- [Day 2]() Passcode:
+- [Day 2](https://generalassembly.zoom.us/rec/share/FEFcwWVmokhtpux1gs3DDwbWGon-y9X8dXsDdsty7vLgziXQOudByMY1f_2mpurv.xWLeyfVzy_8-6PZz) Passcode: chN^m@i0
 
 ### Week 9
 
